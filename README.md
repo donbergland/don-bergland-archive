@@ -12,3 +12,5 @@ Permanent master directory and chronology for the life's work of Dr. Don Berglan
 
 **1962 (Summer)** | Military Band Service & Bugler's Badge Certification at HMCS Quadra 
     *   [View Permanent Core Files on Archive.org](https://archive.org)
+
+    

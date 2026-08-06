@@ -12,7 +12,7 @@ Permanent master directory and chronology for the life's work of Dr. Don Berglan
     *   [View Permanent Core Files on Archive.org](https://archive.org/details/don-bergland-artwork-0007-carcake-001)
     
 **2026-04-02** | Self-Portrait 
-    *   [View Permanent Core Files on Archive.org]([https://archive.org](https://archive.org/details/studio-life-0005-self-portrait-002))
+    *   [View Permanent Core Files on Archive.org]([https://archive.org](https://archive.org/details/studio-life-0005-self-portrait-002)
 
 **2026 (Summer)** | Military Band Service & Bugler's Badge Certification at HMCS Quadra 
     *   [View Permanent Core Files on Archive.org](https://archive.org)

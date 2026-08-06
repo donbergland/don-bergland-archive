@@ -2,6 +2,8 @@
 # don-bergland-archive
 Permanent master directory and chronology for the life's work of Dr. Don Bergland.
 
+**2026** | THE YEAR 2026
+
 **2026-10-12** | Master Curriculum Vitae 
     *   (https://archive.org/details/2026-06-30-don-bergland-cv-master)
     

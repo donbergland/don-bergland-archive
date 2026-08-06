@@ -6,7 +6,7 @@ Permanent master directory and chronology for the life's work of Dr. Don Berglan
     *   [View Permanent Core Files on Archive.org]([https://archive.org](https://archive.org/details/2026-06-30-don-bergland-cv-master)
     
 **1962-06-05** | New Stuff goes here 
-    *   [View Permanent Core Files on Archive.org]([https://archive.org](https://archive.org/details/2025-05-27-don-bergland-dryweed-molly))
+    *   [View Permanent Core Files on Archive.org]([https://archive.org](https://archive.org/details/2025-05-27-don-bergland-dryweed-molly)
 
 **1962 (Summer)** | Military Band Service & Bugler's Badge Certification at HMCS Quadra 
     *   [View Permanent Core Files on Archive.org](https://archive.org)
